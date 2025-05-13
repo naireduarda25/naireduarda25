@@ -10,4 +10,9 @@ Meu nome é nair
 - ## você pode entrar em contato comigo 🥉
 
 - correia.nair@escola.pr.gov.br
-- ![](
+
+- ![](https://media1.tenor.com/m/ucPDLxi-pqkAAAAd/giantsbetta-small-monkey.gif)
+- 
+
+
+
